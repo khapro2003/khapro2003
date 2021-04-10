@@ -1,4 +1,4 @@
-Welcome to the github-slideshow wiki!
+Welcome to Mr.Kha's github
 
     I name Kha, 17 yeard old
 
